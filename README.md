@@ -17,6 +17,6 @@
 Any issues or have questions, ideas or concerns?
  Please Get in touch.
 * tonadaphine77@gmail.com
-* +250780624491
+
 ### License
 Tona Daphin
